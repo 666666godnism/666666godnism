@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @666666godnism call me rnanism
+- 👋 Hi, I’m @ciphernism call me RNA
 - 👀 I’m interested in cyberworld
 - 🌱 I’m currently learning self-taught
 - 💞️ I’m looking to collaborate on none
