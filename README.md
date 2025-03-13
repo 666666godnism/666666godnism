@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ciphernism call me RNA
+- 👋 Hi, I’m @nyan4dev
 - 👀 I’m interested in cyberworld
 - 🌱 I’m currently learning self-taught
 - 💞️ I’m looking to collaborate on none
